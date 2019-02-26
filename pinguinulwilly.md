@@ -24,4 +24,4 @@ Lipa, lipa pe la pol.\\
 Legănâdu-se agale,\\
 Mândru ca un dirijor,\\
 Trece pinguinul Willy\\
-Sufletul ghețarilor.\\
+Sufletul ghețarilor.
