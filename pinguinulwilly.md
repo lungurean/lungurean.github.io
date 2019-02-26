@@ -13,7 +13,7 @@ Mândru ca un dirijor,\\
 Trece pinguinul Willy\\
 Sufletul ghețarilor.\\
 
-> Lui îi place și-nghețata\\
+Lui îi place și-nghețata\\
 Dar c-un pește îl dai gata;\\
 Willy –pinguin frumos,\\
 Este foarte pofticios.\\
